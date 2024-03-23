@@ -1,6 +1,6 @@
 # HOW MANY ARE THE DUMBBELLS YOU LIFT ?
 
-[![Witches](http://img.youtube.com/vi/Sng4Gk3cFB8/0.jpg)](https://www.youtube.com/watch?v=Sng4Gk3cFB8)
+[![HOW MANY ARE THE DUMBBELLS YOU LIFT ?](http://img.youtube.com/vi/Sng4Gk3cFB8/0.jpg)](https://www.youtube.com/watch?v=Sng4Gk3cFB8)
 
 ## 説明
 取りきってください。<br>
